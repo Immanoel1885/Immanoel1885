@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on any fun projects that build up skills
 - 📫 How to reach me :
           linkedIn: https://www.linkedin.com/in/emmanuel-egwuatu-a60a18248/
+          
           whatsapp / telegram / phone: 09059405788
 
 <!---
